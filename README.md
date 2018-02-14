@@ -1,1 +1,1 @@
-# repositorio diseño
+# Repositorio Diseño
